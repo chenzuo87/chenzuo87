@@ -1,4 +1,4 @@
-# Hi, I'm Zuo Chen (陈作) 👋
+# Hi, I'm Chen Zuo (左臣) 👋
 
 🎓 Ph.D. Candidate · University of California, Davis  
 🏙️ Former Landscape Design Director · 7 years in China  
